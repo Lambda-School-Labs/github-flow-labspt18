@@ -50,6 +50,8 @@ The following is a list of steps and instructions on how to complete this guided
 ### John Mayer
 ### Mohammad Miah
 ### Austin Mehmet
+### Marissa Shaffer
+### Anna Hangstefer
 ### Anna Hangstefer
 ### Tucker Leach
 ### Rob Lark
